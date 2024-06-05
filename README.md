@@ -5,3 +5,4 @@
 
 Hey daniel
 https://github.com/subframe7536/maple-font
+Bro its so laggy
